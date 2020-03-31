@@ -1,7 +1,7 @@
 | 书名 | 大小 | 介绍 | 
 | :----: | :----:  | :----: | 
 | “互联网+”转型实战：解码中国管理模式 | 10M | [点击](https://market.m.taobao.com/app/idleFish-F2e/widle-taobao-rax/page-detail?wh_weex=true&wx_navbar_transparent=true&id=614972978646&ut_sk=1.XI%2BjGvum56wDAO48lFuCKn8R_12431167_1585616467997.Copy.detail.614972978646.2207804982965&forceFlush=1) | 
-| “快”钱游戏：关于投资的22个真实故事 | 930KB | [点击]() | 
+| “快”钱游戏：关于投资的22个真实故事 | 930KB | [点击](https://market.m.taobao.com/app/idleFish-F2e/widle-taobao-rax/page-detail?wh_weex=true&wx_navbar_transparent=true&id=614723329913&ut_sk=1.XI%2BjGvum56wDAO48lFuCKn8R_12431167_1585616467997.Copy.detail.614723329913.2207804982965&forceFlush=1) | 
 | “偷懒”的技术：打造财务Excel达人 | 50.2M | [点击]() | 
 | 3ds Max & VRay灯光-材质-渲染实例精讲 | 53.2M | [点击]() | 
 | 3ds Max实战应用宝典（案例版） | 115MB | [点击]() | 
