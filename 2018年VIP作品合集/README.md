@@ -1,4 +1,4 @@
-# 2018年作品合集360P【5.68GB】[2018年合集【购买】]()
+# 2018年VIP作品合集360P【5.68GB】[2018年合集【购买】]()
 [【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
 ## 201801-30P【size：557MB】[【详情】](https://github.com/sxcool1024/WANIMAL/tree/master/2018%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86/VIP01#2018%E5%B9%B41%E6%9C%88%E5%90%88%E9%9B%86)[【购买】]()
 ## 201802-30P【size：648MB】[【详情】](https://github.com/sxcool1024/WANIMAL/tree/master/2018%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86/VIP02#2018%E5%B9%B42%E6%9C%88%E5%90%88%E9%9B%86)[【购买】]()
