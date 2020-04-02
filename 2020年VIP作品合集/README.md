@@ -1,4 +1,4 @@
-# 2020年VIP作品合集60P【69MB】[2020年合集【购买】]()
+# 2020年VIP作品合集60P【649MB】[2020年合集【购买】]()
 [【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
 ## 202001-30P【size：335MB】[【详情】](https://github.com/sxcool1024/WANIMAL/tree/master/2020%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86/VIP01#2020%E5%B9%B41%E6%9C%88%E5%90%88%E9%9B%86)[【购买】]()
 ## 202002-30P【size：314MB】[【详情】](https://github.com/sxcool1024/WANIMAL/tree/master/2020%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86/VIP02#2020%E5%B9%B42%E6%9C%88%E5%90%88%E9%9B%86)[【购买】]()
