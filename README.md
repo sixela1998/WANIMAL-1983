@@ -1,3 +1,7 @@
+重要说明：<br>
+* 1、本项目为WANIMAL(王动)截至目前全部原版作品，项目制作者不是WANIMAL本人，项目制作者通过高价获得VIP权限，可永久获得WANIMAL最新原版作品。
+* 2、所有作品分享给志同道合的朋友，在这个资源付费的年代，
+
 # WANIMAL原版作品合集
 ## [2013年作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2013%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2013%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861884p654m2013%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
 ## [2014年作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2014%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2014%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861887p773mb2014%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
