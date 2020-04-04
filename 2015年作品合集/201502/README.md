@@ -21,6 +21,6 @@
 ![064.jpg](https://www.nsaimg.com/2020/04/02/5e85501587612.jpg)
 ![065.jpg](https://www.nsaimg.com/2020/04/02/5e85501549ff6.jpg)
 ![061.jpg](https://www.nsaimg.com/2020/04/02/5e855014407da.jpg)
-## 全套原图158P【size：56MB】[购买]()
+## 全套原图158P【size：56MB】[下载]()
 [【回到顶部】](#readme)[【返回2015合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2015%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2015%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861530p646mb2015%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
 [【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
