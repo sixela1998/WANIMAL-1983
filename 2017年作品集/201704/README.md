@@ -21,7 +21,7 @@
 ![20141111_tumblr_new3trEQmt1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859b7861ce9.jpg)
 ![20141111_tumblr_new3vkm1Ke1r2xjmjo2_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859b7851126.jpg)
 ![20141111_tumblr_new3r8x4691r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859b782fe57.jpg)
-## 全套原图100P【size：30.9MB】[购买]()<br>
+## 全套原图100P【size：30.9MB】[下载]()<br>
 [【回到顶部】](#readme)[【返回2017合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2017%E5%B9%B4%E4%BD%9C%E5%93%81%E9%9B%86#2017%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861200p417mb2017%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
 [【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
 
