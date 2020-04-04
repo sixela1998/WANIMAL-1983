@@ -1,6 +1,7 @@
 # 2016年6月合集
-[【返回2016合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2016%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2016%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861210p612mb2016%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-[【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
+## 全套原图100P【size：77.3MB】[下载]()
+[【返回2016合集目录】](/2016年作品合集/README.md)
+[【返回总目录】](/README.md)
 ![20131128_tumblr_mwzytui0dO1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e85586654be2.jpg)
 ![20131122_tumblr_mwojrznOfm1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e8558645beec.jpg)
 ![20131212_tumblr_mxoka9y4tw1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e8558645ab38.jpg)
@@ -21,7 +22,6 @@
 ![20131214_tumblr_mxto9v7EbO1r2xjmjo5_1280.jpg](https://www.nsaimg.com/2020/04/02/5e8558626d2b5.jpg)
 ![20131214_tumblr_mxto9v7EbO1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e85586264e12.jpg)
 ![20131125_tumblr_mwuqtfsYh21r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e855861d3325.jpg)
-## 全套原图100P【size：77.3MB】[下载]()
-[【回到顶部】](#readme)[【返回2016合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2016%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2016%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861210p612mb2016%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-[【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
+[【回到顶部】](#readme)[【返回2016合集目录】](/2016年作品合集/README.md)
+[【返回总目录】](/README.md)
 
