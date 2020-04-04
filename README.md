@@ -17,10 +17,10 @@
 * 5、为防止产品被下架，你会看到同一价格的多种产品，拍任何一个都可以。只要价格跟产品对等，留言格式正确就行。
 # WANIMAL原版作品合集
 ## [2013年作品合集](/2013年作品合集/README.md)
-## [2014年作品合集](#2014年作品合集1887p773mb下载)
-## [2015年作品合集](#2015年作品合集1530p646mb)
-## [2016年作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2016%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2016%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861210p612mb2016%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-## [2017年作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2017%E5%B9%B4%E4%BD%9C%E5%93%81%E9%9B%86#2017%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861200p417mb2017%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-## [2018年VIP作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2018%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2018%E5%B9%B4vip%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86360p568gb2018%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-## [2019年VIP作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2019%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2019%E5%B9%B4vip%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86360p533gb2019%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-## [2020年VIP作品合集](https://github.com/sxcool1024/WANIMAL/tree/master/2020%E5%B9%B4VIP%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2020%E5%B9%B4vip%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%8660p649mb2020%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
+## [2014年作品合集](/2014年作品合集/README.md)
+## [2015年作品合集](/2015年作品合集/README.md)
+## [2016年作品合集](/2016年作品合集/README.md)
+## [2017年作品合集](/2017年作品合集/README.md)
+## [2018年VIP作品合集](/2018年VIP作品合集/README.md)
+## [2019年VIP作品合集](/2019年VIP作品合集/README.md)
+## [2020年VIP作品合集](/2020年VIP作品合集/README.md)
