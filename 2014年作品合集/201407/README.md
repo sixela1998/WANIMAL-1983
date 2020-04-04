@@ -1,6 +1,7 @@
 # 2014年7月合集
-[【返回2014合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2014%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2014%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861887p773mb2014%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-[【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
+## 全套原图157P【size：63.6MB】[下载]()
+[【返回2014合集目录】](/2014年作品合集/README.md)
+[【返回总目录】](/README.md)
 ![177.jpg](https://www.nsaimg.com/2020/04/02/5e854d01789c4.jpg)
 ![173.jpg](https://www.nsaimg.com/2020/04/02/5e854cff5cdc4.jpg)
 ![174.jpg](https://www.nsaimg.com/2020/04/02/5e854cff0fa88.jpg)
@@ -21,6 +22,5 @@
 ![163.jpg](https://www.nsaimg.com/2020/04/02/5e854cfc26514.jpg)
 ![178.jpg](https://www.nsaimg.com/2020/04/02/5e854cfb4f2b0.jpg)
 ![181.jpg](https://www.nsaimg.com/2020/04/02/5e854cfb320e7.jpg)
-## 全套原图157P【size：63.6MB】[下载]()<br>
-[【回到顶部】](#readme)[【返回2014合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2014%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2014%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861887p773mb2014%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-[【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
+[【回到顶部】](#readme)[【返回2014合集目录】](/2014年作品合集/README.md)
+[【返回总目录】](/README.md)
