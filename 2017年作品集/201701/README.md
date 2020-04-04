@@ -1,6 +1,6 @@
 # 2017年1月合集
 ## 全套原图100P【size：29.5MB】[下载](https://474b.com/file/25713053-435032406)
-[【返回2017合集目录】](/2017年作品合集/README.md)
+[【返回2017合集目录】](/2017年作品集/README.md)
 [【返回总目录】](/README.md)
 ![20141020_tumblr_ndrs29uTeW1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859a51a3d40.jpg)
 ![20140413_tumblr_n400orpxrL1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859a50d6b5c.jpg)
@@ -22,6 +22,6 @@
 ![20140413_tumblr_n401iwvnIS1r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859a4dc0802.jpg)
 ![20140413_tumblr_n400w2Ls691r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859a4d7aebf.jpg)
 ![20140413_tumblr_n401fsaKt51r2xjmjo1_1280.jpg](https://www.nsaimg.com/2020/04/02/5e859a4d2b031.jpg)
-[【回到顶部】](#readme)[【返回2017合集目录】](/2017年作品合集/README.md)
+[【回到顶部】](#readme)[【返回2017合集目录】](/2017年作品集/README.md)
 [【返回总目录】](/README.md)
 
