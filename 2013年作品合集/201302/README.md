@@ -1,7 +1,7 @@
 # 2013年2月合集
 ## 全套原版图157P【size：57MB】[下载](https://474b.com/file/25713053-435027453)
-[【返回2013合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2013%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2013%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861884p654m2013%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-[【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
+[【返回2013合集目录】](/2013年作品合集/README.md)
+[【返回总目录】](/README.md)
 ![038.jpg](https://www.nsaimg.com/2020/04/01/5e84a0361d238.jpg)
 ![052.jpg](https://www.nsaimg.com/2020/04/01/5e84a035c3daa.jpg)
 ![050.jpg](https://www.nsaimg.com/2020/04/01/5e84a035b68f3.jpg)
@@ -22,5 +22,5 @@
 ![045.jpg](https://www.nsaimg.com/2020/04/01/5e84a03311692.jpg)
 ![056.jpg](https://www.nsaimg.com/2020/04/01/5e84a0328d33a.jpg)
 ![055.jpg](https://www.nsaimg.com/2020/04/01/5e84a03223ea0.jpg)
-[【回到顶部】](#readme)[【返回2013合集目录】](https://github.com/sxcool1024/WANIMAL/tree/master/2013%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86#2013%E5%B9%B4%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%861884p654m2013%E5%B9%B4%E5%90%88%E9%9B%86%E8%B4%AD%E4%B9%B0)
-[【返回总目录】](https://github.com/sxcool1024/WANIMAL#wanimal%E5%8E%9F%E7%89%88%E4%BD%9C%E5%93%81%E5%90%88%E9%9B%86)
+[【回到顶部】](#readme)[【返回2013合集目录】](/2013年作品合集/README.md)
+[【返回总目录】](/README.md)
