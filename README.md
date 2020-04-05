@@ -11,4 +11,4 @@
 ## [2018年VIP作品合集](/2018年VIP作品合集/README.md)
 ## [2019年VIP作品合集](/2019年VIP作品合集/README.md)
 ## [2020年VIP作品合集](/2020年VIP作品合集/README.md)
-# 欢迎加入电报群一起交流： https://t.me/sxcool1024g
+# 为防止和谐，所有文件全部打包加密，加电报群https://t.me/sxcool1024g发送密码两字获得解压密码
