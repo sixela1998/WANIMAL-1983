@@ -11,5 +11,7 @@
 ## [2018年VIP作品合集](/2018年VIP作品合集/README.md)
 ## [2019年VIP作品合集](/2019年VIP作品合集/README.md)
 ## [2020年VIP作品合集](/2020年VIP作品合集/README.md)
-## 欢迎加入电报群交流：https://t.me/sxcool1024g
+# 电报交流群：https://t.me/sxcool1024g
+![扫码进电报群](https://www.nsaimg.com/2020/04/17/2a6cb36afc25f.jpg "扫码进电报群")
+[回到顶部](#readme)
 
